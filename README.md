@@ -1,3 +1,3 @@
 #my name is mahesh done.
 
-# a am stedy for in apna collele
+# I am stedy for apna collele
